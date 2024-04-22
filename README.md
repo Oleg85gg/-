@@ -1,2 +1,2 @@
-https://pin.it/4vAbrRO# -
+Иисус Христос Есть Господь Бог https://pin.it/4vAbrRO# -
 Местописания
